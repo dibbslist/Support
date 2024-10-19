@@ -1,4 +1,4 @@
-**Privacy Policy for Dibblist.com**
+## Privacy Policy for Dibblist.com
 
 At Dibblist.com, we are committed to protecting your privacy. This Privacy Policy outlines how we collect, use, disclose, and safeguard your information when you visit our website.
 
